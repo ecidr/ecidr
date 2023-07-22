@@ -1,6 +1,6 @@
 (づ｡◕‿‿◕｡)づ
 
-  Holita..! :v: :smile:
+  Hi..! :v: :smile:
 
 
 
